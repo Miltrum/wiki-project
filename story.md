@@ -38,3 +38,6 @@ Even though the story is filled with action, it also focuses deeply on the emoti
 ## Story Summary
 
 The world of Jujutsu Kaisen is dark, unpredictable, and full of powerful enemies. But with teamwork, determination, and the will to protect others, Yuji and his allies continue forward — even when the odds are against them.
+
+
+This wiki is still being expanded as new story arcs and lore details are revealed.
